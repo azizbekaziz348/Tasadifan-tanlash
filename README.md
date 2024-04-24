@@ -1,0 +1,2 @@
+# Tasadifan-tanlash
+dfghj
